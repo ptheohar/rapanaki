@@ -48,3 +48,5 @@ Hey, guess what you're accessories to. I feel like I was mauled by Jesus. Why wo
 I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinier than yours, meatbag. That's the ONLY thing about being a slave. Um, is this the boring, peaceful kind of taking to the streets?
 
 Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
+
+Rania, there are only two times that I want to be with you: Now and Forever.... I love you so much :heart:
