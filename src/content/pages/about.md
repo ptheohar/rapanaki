@@ -49,4 +49,4 @@ I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinie
 
 Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
 
-Rania, there are only two times that I want to be with you: Now and Forever!
+Rapanaki mou, there are only two times that I want to be with you: Now and Forever!
